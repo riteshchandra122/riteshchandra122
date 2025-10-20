@@ -9,7 +9,7 @@
 If you would like to help me with stuff or want me to help you out with something (ehm collaboration ehm), feel free to reach me on my mail (ritesh.chandra122@gmail.com) 📩  
 Slide into my mail, i will get back to you 
 
-- ⚡ I also love to network with new people. If you want to connect do message to my media accounts attached.
+- ⚡ I also love to make new connections. If you want to connect do message to my media accounts attached.
 
 
 <h3 align="left">Connect with me:</h3>
